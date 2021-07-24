@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Norseman2021
+- 👀 I’m interested in help build Bitcoins
+- 🌱 I’m currently learning buying and selling Bitcoins
+- 💞️ I’m looking to collaborate on anything new
+- 📫 How to reach me rg.norseman@gmail.com
